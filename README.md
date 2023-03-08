@@ -1,2 +1,2 @@
-https://constantynex.github.io/rsschool-cv/cv
+https://constantynex.github.io/rsschool-cv
 
